@@ -1,2 +1,1 @@
-# freecoins
-Bitcoin mining free https://cryptotabbrowser.com/35158900
+8b30ee794dd778d85863aeee51110965d9aab712
